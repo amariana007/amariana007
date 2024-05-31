@@ -9,3 +9,5 @@ Meu nome é ```Mariana``` ```Batista```
 > ### Você pode entrar em contato comigo 📫
 > alurastartestudante@email.com
 > @alurastartestudante
+
+![image](https://github.com/amariana007/amariana007/assets/171151729/d665d0d0-e2fa-4263-9237-da9b39188c32)
